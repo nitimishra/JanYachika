@@ -87,4 +87,4 @@ This project is licensed under the MIT License.
 
 
 ## Contact: 
-I love getting feedbacks 😃..Connect me on [Linkedin](https://linkedin.com/in/mymadhavyadav07) or DM me on [Instagram](https://instagram.com/@mymadhavyadav07)
+I love getting feedbacks 😃..Connect me on [Linkedin]([https://www.linkedin.com/in/niti-mishra21]) or DM me on [Instagram]([https://www.instagram.com/nitimishra0018])
